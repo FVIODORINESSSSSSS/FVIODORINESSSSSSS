@@ -60,6 +60,11 @@
 
 </details>
 
+<p align="center"> $\color{#ffd900}{\textsf{𝑀𝑌 𝑂𝑁𝐿𝑌 𝐶𝑈𝑅𝑅𝐸𝑁𝑇 𝐴𝐶𝐶:}}$
+
+
+[𖤐 — 𝙋𝙍𝙊𝙉𝙊𝙐𝙉𝙎.𝘾𝘾](https://pronouns.cc/@FVIOURRRR)
+
 
 <p align="center"> $\color{#ffd900}{\textsf{“ 恋人達は訳もなく きっかけも なにもなく。 ”}}$
 

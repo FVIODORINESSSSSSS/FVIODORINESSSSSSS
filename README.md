@@ -43,7 +43,7 @@
 
 <p align="center"> $\color{#43009f}{\textsf{𝐈𝐒𝐅𝐉}}$
 
-<p align="center"> $\color{#ffd900}{\textsf{𝐇𝐄 / 𝐓𝐇𝐄𝐘}}$
+<p align="center"> $\color{#43009f}{\textsf{𝐇𝐄 / 𝐓𝐇𝐄𝐘}}$
 
 
 <p align="center"> $\color{#43009f}{\textsf{𝐒𝐂𝐎𝐑𝐏𝐈𝐎}}$

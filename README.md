@@ -33,6 +33,18 @@
 
 
 
+
+
+
+
+<details>
+  <summary> <p align="center"> $\color{#ffd900}{\textsf{༝༚༝༚ ༅ 𝐂𝐋𝐈𝐂𝐊 𝐇𝐄𝐑𝐄 !! ༄ ༎}}$ </summary>
+  
+
+
+</details>
+
+
 <p align="center"> $\color{#ffd900}{\textsf{“ 恋人達は訳もなく きっかけも なにもなく。 ”}}$
 
 

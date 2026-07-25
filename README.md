@@ -41,6 +41,21 @@
   <summary> <p align="center"> $\color{#ffd900}{\textsf{༝༚༝༚ ༅ 𝐂𝐋𝐈𝐂𝐊 𝐇𝐄𝐑𝐄 !! ༄ ༎}}$ </summary>
   
 
+<p align="center"> $\color{#43009f}{\textsf{𝐈𝐒𝐅𝐉}}$
+
+
+<p align="center"> $\color{#43009f}{\textsf{𝐒𝐂𝐎𝐑𝐏𝐈𝐎}}$
+
+
+<p align="center"> $\color{#43009f}{\textsf{𝐁𝐈𝐒𝐄𝐗𝐔𝐀𝐋}}$
+
+
+<p align="center"> $\color{#43009f}{\textsf{𝐌𝐀𝐋𝐈𝐙𝐄 𝐌𝐈𝐙𝐄𝐑 𝐊𝐈𝐍𝐍𝐄𝐑𝐒 𝐈𝐍𝐓}}$
+
+
+<p align="center"> $\color{#43009f}{\textsf{𝐆𝐀𝐂𝐊𝐓 𝐊𝐈𝐍𝐍𝐄𝐑𝐒 𝐈𝐍𝐓 !!}}$
+
+
 
 </details>
 

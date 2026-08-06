@@ -57,7 +57,8 @@
 
 <p align="center"> $\color{#43009f}{\textsf{𝐆𝐀𝐂𝐊𝐓 𝐒𝐓𝐀𝐍𝐒 𝐈𝐍𝐓 !!}}$
 
-<p align="center"> $\color{#006dff}{\textsf{𝙷𝚊𝚙𝚙𝚒𝚕𝚢 𝚊𝚗𝚍 𝙵𝚘𝚛𝚎𝚟𝚎𝚛 𝚃𝚊𝚔𝚎𝚗 𝚋𝚢 : ☾☄ — 𝓚𝓪𝔂𝔃𝓲𝓪𝓷}}$
+<p align="center"> $\color{#006dff}{\textsf{𝙷𝚊𝚙𝚙𝚒𝚕𝚢 𝚊𝚗𝚍 𝙵𝚘𝚛𝚎𝚟𝚎𝚛 𝚃𝚊𝚔𝚎𝚗 𝚋𝚢 :
+ ☾☄ — 𝓚𝓪𝔂𝔃𝓲𝓪𝓷}}$
 
 
 </details>

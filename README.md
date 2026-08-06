@@ -52,17 +52,17 @@
 <p align="center"> $\color{#43009f}{\textsf{𝐁𝐈𝐒𝐄𝐗𝐔𝐀𝐋}}$
 
 
-<p align="center"> $\color{#43009f}{\textsf{𝐌𝐀𝐋𝐈𝐙𝐄 𝐌𝐈𝐙𝐄𝐑 𝐊𝐈𝐍𝐍𝐄𝐑𝐒 𝐈𝐍𝐓}}$
+<p align="center"> $\color{#43009f}{\textsf{𝐌𝐀𝐋𝐈𝐙𝐄 𝐌𝐈𝐙𝐄𝐑 𝐒𝐓𝐀𝐍𝐒 𝐈𝐍𝐓!!}}$
 
 
-<p align="center"> $\color{#43009f}{\textsf{𝐆𝐀𝐂𝐊𝐓 𝐊𝐈𝐍𝐍𝐄𝐑𝐒 𝐈𝐍𝐓 !!}}$
+<p align="center"> $\color{#43009f}{\textsf{𝐆𝐀𝐂𝐊𝐓 𝐒𝐓𝐀𝐍𝐒 𝐈𝐍𝐓 !!}}$
 
 <p align="center"> $\color{#006dff}{\textsf{𝙷𝚊𝚙𝚙𝚒𝚕𝚢 𝚊𝚗𝚍 𝙵𝚘𝚛𝚎𝚟𝚎𝚛 𝚃𝚊𝚔𝚎𝚗 𝚋𝚢 : ☾☄ — 𝓚𝓪𝔂𝔃𝓲𝓪𝓷}}$
 
 
 </details>
 
-<p align="center"> $\color{#ffd900}{\textsf{𝑀𝑌 𝑂𝑁𝐿𝑌 𝐶𝑈𝑅𝑅𝐸𝑁𝑇 𝐴𝐶𝐶:}}$
+<p align="center"> $\color{#ffd900}{\textsf{𝑀𝑌 𝐴𝐶𝐶𝑂𝑈𝑁𝑇𝑆!!:}}$
 
 
 [𖤐 — 𝙋𝙍𝙊𝙉𝙊𝙐𝙉𝙎.𝘾𝘾](https://pronouns.cc/@FVIOURRRR)

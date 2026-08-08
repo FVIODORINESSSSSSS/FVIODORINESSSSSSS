@@ -40,6 +40,7 @@
 <details>
   <summary> <p align="center"> $\color{#ffd900}{\textsf{༝༚༝༚ ༅ 𝐂𝐋𝐈𝐂𝐊 𝐇𝐄𝐑𝐄 !! ༄ ༎}}$ </summary>
   
+<p align="center"> $\color{#43009f}{\textsf{🇵🇭}}$
 
 <p align="center"> $\color{#43009f}{\textsf{𝐈𝐒𝐅𝐉}}$
 

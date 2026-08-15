@@ -42,7 +42,7 @@
   
 <p align="center"> $\color{#43009f}{\textsf{🇵🇭}}$
 
-<p align="center"> $\color{#43009f}{\textsf{𝐈𝐒𝐅𝐉}}$
+<p align="center"> $\color{#43009f}{\textsf{𝐈𝐒𝐓𝐉}}$
 
 <p align="center"> $\color{#43009f}{\textsf{𝐇𝐄 / 𝐓𝐇𝐄𝐘}}$
 

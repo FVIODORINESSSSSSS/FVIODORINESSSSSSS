@@ -50,7 +50,8 @@
 <p align="center"> $\color{#43009f}{\textsf{𝐒𝐂𝐎𝐑𝐏𝐈𝐎}}$
 
 
-<p align="center"> $\color{#43009f}{\textsf{𝐁𝐈𝐒𝐄𝐗𝐔𝐀𝐋}}$
+<p align="center"> $\color{#43009f}{\textsf{𝑃𝐴𝑁𝑆𝐸𝑋𝑈𝐴𝐿}}$
+<p align="center"> $\color{#43009f}{\textsf{𝐴𝐺𝐸𝑁𝐷𝐸𝑅}}$
 
 
 <p align="center"> $\color{#43009f}{\textsf{𝐌𝐀𝐋𝐈𝐙𝐄 𝐌𝐈𝐙𝐄𝐑 𝐒𝐓𝐀𝐍𝐒 𝐈𝐍𝐓!!}}$

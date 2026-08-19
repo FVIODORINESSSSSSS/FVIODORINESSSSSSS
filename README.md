@@ -67,7 +67,7 @@
 <p align="center"> $\color{#ffd900}{\textsf{𝑀𝑌 𝐴𝐶𝐶𝑂𝑈𝑁𝑇𝑆!!:}}$
 
 
-[𖤐 — 𝙋𝙍𝙊𝙉𝙊𝙐𝙉𝙎.𝘾𝘾](https://pronouns.cc/@FVIOURRRR)
+[𖤐 — 𝙋𝙍𝙊𝙉𝙊𝙐𝙉𝙎.𝘾𝘾](https://pronouns.cc/@ICarryNothing.ButTheBreathIBorrow..)
 
 
 <p align="center"> $\color{#ffd900}{\textsf{“恋人達は訳もなく きっかけも なにもなく.”}}$
